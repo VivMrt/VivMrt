@@ -31,14 +31,14 @@
 <h1>Short info</h1>
 <p>I'm wanking LoL, sitting with friends in Pony Town, really like strength training, have a high level of aggression and often start a competitive fight.</p>
 <p>$${\color{yellow}U~may~see~me~by~these~fandoms~in~Pony~Town:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Pressure, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Cookie Run </p>
+<p align="center"> <img width="200px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
 
 <h1>My core</h1>
-<p>
+<p align="center">
 <img width="150px" src="https://64.media.tumblr.com/cafacf56bdf8b4051f2d84d006ec871b/5732e589548c1c67-05/s100x200/e01baab346d9393ddd934878fc59fc61e8ce97fa.gifv" alt="qr"/>
-<img width="200px" src="https://64.media.tumblr.com/107af5cede58fc86909c0a78469b6237/a836fbce8e713330-23/s250x400/f8aeadb6883975f40e4d339bead9b3d9534f4474.gifv" alt="qr"/>
-<img width="200px" src="https://github.com/user-attachments/assets/a8c975d2-92ee-4608-be95-a53f9c969847" alt="qr"/>
+<img width="300px" src="https://64.media.tumblr.com/107af5cede58fc86909c0a78469b6237/a836fbce8e713330-23/s250x400/f8aeadb6883975f40e4d339bead9b3d9534f4474.gifv" alt="qr"/>
+<img width="200px" src="https://c.tenor.com/TACNGGVLbkkAAAAd/tenor.gif" alt="qr"/>
 <img width="150px" src="https://pbs.twimg.com/media/F_vGxfCXAAA6KlQ?format=jpg&name=small" alt="qr"/>
-<img width="150px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/>
 </p>
 
 
