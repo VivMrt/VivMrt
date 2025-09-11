@@ -43,6 +43,11 @@
 <img width="150px" src="https://pbs.twimg.com/media/F_vGxfCXAAA6KlQ?format=jpg&name=small" alt="qr"/>
 </p>
 
+<p align="center">
+ Running do gank by Hiess comand
+<img width="200px" src="https://c.tenor.com/TbKYsFfvdS8AAAAd/tenor.gif" alt="qr"/>
+</p>
+
 
 <p align="center">
 <img height ="10px" width="800px" src="https://64.media.tumblr.com/1e7eecd65aea1e2e23c4097118c1a75a/8b534700d0de740d-28/s540x810/44e6d9116b60f3900b732620957139fae496aba6.gifv" alt="qr"/>
