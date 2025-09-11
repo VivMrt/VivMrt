@@ -1,16 +1,58 @@
-## Hi there 👋
+<h1>Hewwo</h1>
 
-<!--
-**VivMrt/VivMrt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+ <img width="300px" src="https://media.tenor.com/ybpLXCCzWVEAAAAi/lizard.gif" alt="qr"/>
+</p>
 
-Here are some ideas to get you started:
+  <p align="center"> Names Rin or Vivo</p>
+  <p align="center"> Any pronounce</p>
+  <p align="center"> Agressive silly lizard vibes</p>
+  <p align="center"> $${\color{red}ESTP~8w7~(873)}$$ 23 y.o.</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p> More info about me u can find by pressing buttons below:</p>
+<a href="https://en.pronouns.page/@Rin_Ermine">
+<img src="https://img.shields.io/badge/Pronounce_Page-blue?style=for-the-badge" alt="PronouncePage Badge"/> </a>
+  <a href="https://rnrmnecard.carrd.co/">
+    <img src="https://img.shields.io/badge/Card_Profile-red?style=for-the-badge" alt="Card Badge"/> </a>
+ 
+  
+  
+ 
+> [!IMPORTANT]  
+> <p>I rly can be annoying by my hyperfixations, idk how to counter them, but, at least, we can have topics.</p>
+> <p> Since i'm at work most of the day, i can ignore your messages, not on purpose.</p>
+> <p>Because of the routine I suffer from depressive periods and can be very aggressive and hysterical on such days. For this reason I can avoid online communication in my socials, but irl.</p>
+
+> [!CAUTION]
+> i have no dni lists, because like to chat with anyone. <ins>Your tastes, views, worldview, pairings and so on are your business, not mine</ins>
+
+<img align="center" src= https://64.media.tumblr.com/e871d9f224d2dc5f7a504c28eed3fa9f/85edfd53d6d2bedd-b4/s2048x3072/06b682064b34a55272f2fd5deb6b83ab50a5eee8.pnj>
+
+<h1>Short info</h1>
+<p>I'm wanking LoL, sitting with friends in Pony Town, really like strength training, have a high level of aggression and often start a competitive fight.</p>
+<p>$${\color{yellow}U~may~see~me~by~these~fandoms~in~Pony~Town:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Pressure, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Cookie Run </p>
+
+<h1>My core</h1>
+<p>
+<img width="150px" src="https://64.media.tumblr.com/cafacf56bdf8b4051f2d84d006ec871b/5732e589548c1c67-05/s100x200/e01baab346d9393ddd934878fc59fc61e8ce97fa.gifv" alt="qr"/>
+<img width="200px" src="https://64.media.tumblr.com/107af5cede58fc86909c0a78469b6237/a836fbce8e713330-23/s250x400/f8aeadb6883975f40e4d339bead9b3d9534f4474.gifv" alt="qr"/>
+<img width="200px" src="https://github.com/user-attachments/assets/a8c975d2-92ee-4608-be95-a53f9c969847" alt="qr"/>
+<img width="150px" src="https://pbs.twimg.com/media/F_vGxfCXAAA6KlQ?format=jpg&name=small" alt="qr"/>
+<img width="150px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/>
+</p>
+
+
+<p align="center">
+<img height ="10px" width="800px" src="https://64.media.tumblr.com/1e7eecd65aea1e2e23c4097118c1a75a/8b534700d0de740d-28/s540x810/44e6d9116b60f3900b732620957139fae496aba6.gifv" alt="qr"/>
+</p>
+<p align="center">
+<img width="500px" src="https://preview.fontget.com/tmp/68c2d5038f1d4.png" alt="qr"/>
+</p>
+<p align="center">
+<img width="500px" src="https://64.media.tumblr.com/1e7eecd65aea1e2e23c4097118c1a75a/8b534700d0de740d-28/s540x810/44e6d9116b60f3900b732620957139fae496aba6.gifv" alt="qr"/>
+</p>
+<p align="center">
+<img width="500px" src="https://c.tenor.com/PL8-xmsuqLcAAAAd/tenor.gif" alt="qr"/>
+</p>
+ 
+
