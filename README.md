@@ -26,7 +26,6 @@
 
 > [!CAUTION]
 > i have no dni lists, because like to chat with anyone. <ins>Your tastes, views, worldview, pairings and so on are your business, not mine.</ins>
->But if you think Hearsteel Kayn is better than Odyssey - perhaps you once escaped from a mental hospital.
 
 <img align="center" src= https://64.media.tumblr.com/e871d9f224d2dc5f7a504c28eed3fa9f/85edfd53d6d2bedd-b4/s2048x3072/06b682064b34a55272f2fd5deb6b83ab50a5eee8.pnj>
 
