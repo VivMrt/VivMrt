@@ -20,7 +20,7 @@
  
 > [!IMPORTANT]  
 > <p>I rly can be annoying by my hyperfixations, idk how to counter them, but, at least, we can have topics.</p>
-> <p> Since i'm at work most of the day, i can ignore your messages, not on purpose.</p>
+> <p> Since i'm at work most of the day, i can ignore your messages, not on purpose. In Pony Town mostly afk, but W2I.</p>
 > <p>Because of the routine I suffer from depressive periods and can be very aggressive and hysterical on such days. For this reason I can avoid online communication in my socials, but irl.</p>
 > <p>don't provoke my partner @Miarrgaar or friends while we are afk in Pony Town</p>
 
@@ -32,7 +32,7 @@
 <h1>Short info</h1>
 <p>I'm geek out LoL, sitting with friends in Pony Town, really like strength training, have a high level of aggression and often start a competitive fight.</p>
 <p>Love my perfect puppy wife and and I will be aggressive towards those who offend her</p>
-<p>$${\color{yellow}U~may~see~me~in~these~fandoms~in~Pony~Town:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Pressure, Regretevator, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Cookie Run </p>
+<p>$${\color{yellow}U~may~see~me~in~these~fandoms~in~Pony~Town:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena,Overwatch, Pressure, Regretevator, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Cookie Run </p>
 <p align="center"> <img width="200px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
 
 <h1>My core</h1>
