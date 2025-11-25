@@ -8,10 +8,6 @@
   <p align="center"> Any pronounce</p>
   <p align="center"> Agressive silly lizard vibes</p>
   <p align="center"> $${\color{red}ESTP~8w7~(873)}$$ 23 y.o.</p>
-<p>
-<a href="https://en.pronouns.page/@Rin_Ermine">
-<img src="https://img.shields.io/badge/SWITCH_TO_RU-blue?style=for-the-badge" alt="ToRu Badge"/> </a>
-</p>
 
 <p> More info about me u can find by pressing buttons below:</p>
 <a href="https://en.pronouns.page/@Rin_Ermine">
