@@ -32,7 +32,7 @@
 <h1>Short info</h1>
 <p>Sitting with friends in Pony Town, really like strength training.</p>
 <p>Love my perfect puppy wife and and I will be aggressive towards those who offend her</p>
-<p>$${\color{yellow}U~may~see~me~in~these~fandoms~in~Pony~Town:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena,Overwatch, Pressure, Regretevator, DoD, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Hazbin Hotel/Helluva Boss, Cookie Run </p>
+<p>$${\color{yellow}U~may~see~me~in~these~cosplays:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena,Overwatch, Pressure, Regretevator, DoD, Forsaken, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Hellaverse, CRK </p>
 <p align="center"> <img width="200px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
 
 <h1>My core</h1>
