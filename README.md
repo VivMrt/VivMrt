@@ -50,7 +50,7 @@
 <img height ="10px" width="800px" src="https://64.media.tumblr.com/1e7eecd65aea1e2e23c4097118c1a75a/8b534700d0de740d-28/s540x810/44e6d9116b60f3900b732620957139fae496aba6.gifv" alt="qr"/>
 </p>
 <p align="center">
-<img width="500px" src="https://preview.fontget.com/tmp/68c3031876be5.png" alt="qr"/>
+
 </p>
 <p align="center">
 <img width="500px" src="https://64.media.tumblr.com/1e7eecd65aea1e2e23c4097118c1a75a/8b534700d0de740d-28/s540x810/44e6d9116b60f3900b732620957139fae496aba6.gifv" alt="qr"/>
