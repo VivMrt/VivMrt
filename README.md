@@ -20,6 +20,7 @@
 > [!IMPORTANT]  
 > <p>I rly can be annoying by my hyperfixations, idk how to counter them, but, at least, we can have topics.</p>
 > <p> Since i'm at work most of the day, i can ignore your messages, not on purpose.</p>
+> <p> Social links via Card.
 
 > [!CAUTION]
 > i have no dni lists, because like to chat with anyone. <ins>Your tastes, views, worldview, pairings and so on are your business, not mine.</ins>
@@ -27,7 +28,7 @@
 <img align="center" src= https://64.media.tumblr.com/e871d9f224d2dc5f7a504c28eed3fa9f/85edfd53d6d2bedd-b4/s2048x3072/06b682064b34a55272f2fd5deb6b83ab50a5eee8.pnj>
 
 <h1>Short info</h1>
-<p>$${\color{yellow}U~may~see~me~in~these~cosps~in~Pony~Town:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena,Overwatch, Pressure, Regretevator, DoD, Forsaken, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Hellaverse, CRK </p>
+<p>U may see me in these cosps in Pony Town:}$$ Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena,Overwatch, Pressure, Regretevator, DoD, Forsaken, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Hellaverse, CRK </p>
 <p align="center"> <img width="200px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
 
 <h1>My core</h1>
