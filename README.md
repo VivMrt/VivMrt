@@ -4,7 +4,7 @@
  <img width="200px" src="https://media.tenor.com/ybpLXCCzWVEAAAAi/lizard.gif" alt="qr"/>
 </p>
 
-  <p align="center"> Names Rin or Vivo</p>
+  <p align="center"> Names Rin</p>
   <p align="center"> Any pronounce</p>
   <p align="center"> Agressive silly lizard vibes</p>
   <p align="center"> ESTP 8w7 (sx8sp7so3) SLUEN V²F³E³L⁴ | 23 y.o.</p>
