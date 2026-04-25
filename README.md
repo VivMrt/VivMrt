@@ -39,13 +39,16 @@
 <img width="290px" src="https://comicvine.gamespot.com/a/uploads/original/11119/111192150/5897111-0678253122-latest" alt="qr"/>
 </p>
 
+<p align= "center">
+  
+<img width="300px" src= "https://media1.tenor.com/m/PPOcwQ4gZk4AAAAC/attack-dont-mess-with-me.gif" alt="dr2"/>
+
+<img width="200px" src= "https://media1.tenor.com/m/8-IUUz6m-G4AAAAC/lizard.gif" alt="dr2"/>
+</p>
+
+
 <p align="center">
 <img height ="10px" width="800px" src="https://64.media.tumblr.com/1e7eecd65aea1e2e23c4097118c1a75a/8b534700d0de740d-28/s540x810/44e6d9116b60f3900b732620957139fae496aba6.gifv" alt="qr"/>
-</p>
-<p align="center">
-<p align="center">
-
-</p>
 </p>
  
 
