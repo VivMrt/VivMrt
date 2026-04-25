@@ -1,4 +1,6 @@
 <h1>Hewwo</h1>
+<p align="center">
+<img width="200px" src="https://64.media.tumblr.com/17566920d124c7efb7b726aaa4bbe862/2990b3e1e56e952d-86/s500x750/b06bb335ce72a338db66098252c2dd36d2db5f0a.pnj" style="transform: scaleX(-1); alt="qr"/>
 
   <p align="center"> Names Rin</p>
   <p align="center"> Any pronounce</p>
@@ -16,7 +18,7 @@
 
 <h1>Short info</h1>
 <p>U may see me in these cosps in Pony Town: Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Overwatch, Pressure, Regretevator, DoD, Forsaken, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Hellaverse, CRK </p>
-<p align="center"> <img width="200px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
+<p align="center"> <img width="150px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
 
 
 <h1>League of Legends</h1>
