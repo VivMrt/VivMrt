@@ -17,7 +17,7 @@
 > i have no dni lists, because like to chat with anyone. <ins>Your tastes, views, worldview, pairings and so on are your business, not mine.</ins>
 
 <h1>Short info</h1>
-<p>U may see me in these cosps in Pony Town: Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Overwatch, Pressure, Regretevator, DoD, Forsaken, HOYO games, DC, Marvel, The Boys, CoS, Boneworks, FNaF, Murder Drones, Hellaverse, CRK </p>
+<p>U may see me in these cosps in Pony Town: Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, ARK:Survival Evolved, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Overwatch, Roblox places, HOYO games, DC, Marvel, The Boys, Boneworks, FNaF, Murder Drones, Hellaverse, CRK, He-Man (MOTU), Subnautica</p>
 <p align="center"> <img width="150px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
 
 
