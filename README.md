@@ -24,7 +24,7 @@
 <h1>League of Legends</h1>
 <p align="center"> ᴏᴛᴘ - ɪꜱ ɴᴏᴛ ᴀ ᴅɪꜱᴇᴀꜱᴇ, ɪꜱ ᴀ ʙʟᴇꜱꜱɪɴɢ</p>
 <p align="center"> <img width="300" height="240" alt="Screenshot_2026-04-25-22-51-11-979_com opera gx-edit" src="https://github.com/user-attachments/assets/60d71f4e-bf21-4609-b3dd-59944c11fee0" />
-<p align="center"> yes, i'm OTP Kayn, playing EUW and RU. Karasmai's and DarkAura child. 
+<p align="center"> i'm OTP Kayn. Main acc EUW (also playing soloq on RU). Karasmai's child. 
 
 <p>My games and profile overview btw</p>
 <p align="center"> 
