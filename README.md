@@ -14,19 +14,20 @@
 </p>
 
 > [!CAUTION]
-> i have no dni lists, because like to chat with anyone. <ins>Your tastes, views, worldview, pairings and so on are your business, not mine.</ins>
+> i have no dni lists, because like to chat with anyone. <ins>Your tastes, views, worldview, pairings etc. on are your business, not mine.</ins>
 
 <h1>Short info</h1>
-<p>U may see me in these cosps in Pony Town: Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, ARK:Survival Evolved, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Overwatch, Roblox places, HOYO games, DC, Marvel, The Boys, Boneworks, FNaF, Murder Drones, Hellaverse, CRK, He-Man (MOTU), Subnautica</p>
+<p>U may see me cosplaying in Pony Town: Warframe, League of Legends, Sonic the Hedgehog, Pacific Rim, ARK:Survival Evolved, Transformers, Portal, Evangelion, Tolkien, DMC, DOOM, Crash Bandicoot, AFK Arena, Overwatch, Roblox, HOYO games, DC, Marvel, The Boys, Boneworks, FNaF, Murder Drones, Hellaverse, CRK, He-Man (MOTU), Subnautica</p>
 <p align="center"> <img width="150px" src="https://64.media.tumblr.com/d548ff7223812f0522aa8dea8007cc8a/8322952c6acb2a6b-1c/s1280x1920/4e88d7289072b34555773453c4d367e176d0f44f.pnj" alt="qr"/> </p>
 
 
 <h1>League of Legends</h1>
 <p align="center"> ᴏᴛᴘ - ɪꜱ ɴᴏᴛ ᴀ ᴅɪꜱᴇᴀꜱᴇ, ɪꜱ ᴀ ʙʟᴇꜱꜱɪɴɢ</p>
 <p align="center"> <img width="300" height="240" alt="Screenshot_2026-04-25-22-51-11-979_com opera gx-edit" src="https://github.com/user-attachments/assets/60d71f4e-bf21-4609-b3dd-59944c11fee0" />
-<p align="center"> i'm OTP Kayn. Main acc EUW (also playing soloq on RU). Karasmai's child. 
+<p align="center"> i'm OTP Kayn. Main acc EUW (also playing soloq on RU). Karasmai's child.
+<p align="center"><n>Favourite skin: Odyssey Kayn</n></p>
 
-<p>My games and profile overview btw</p>
+<p align="center">My games and profile overview btw</p>
 <p align="center"> 
  <img width="340" src="https://github.com/user-attachments/assets/626bc892-7e8e-45b5-8146-bf7145f87738" alt="5433977500779354320"> 
  <img width="405" src="https://github.com/user-attachments/assets/38c7f02d-ab06-4051-aee8-5582ab7552ea" alt="103428057204191324">
