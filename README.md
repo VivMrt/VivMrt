@@ -23,15 +23,17 @@
 
 <h1>League of Legends</h1>
 <p align="center"> ᴏᴛᴘ - ɪꜱ ɴᴏᴛ ᴀ ᴅɪꜱᴇᴀꜱᴇ, ɪꜱ ᴀ ʙʟᴇꜱꜱɪɴɢ</p>
-<p align="center"> <img width="300" height="240" alt="Screenshot_2026-04-25-22-51-11-979_com opera gx-edit" src="https://github.com/user-attachments/assets/60d71f4e-bf21-4609-b3dd-59944c11fee0" />
+<p align="center"> <img width="250" height="450" src="https://github.com/user-attachments/assets/4e7dd4a2-371d-45bc-9f56-677e2877feee" /></p>
+
 <p align="center"> i'm OTP Kayn. Main acc EUW (also playing soloq on RU). Karasmai's child.
 <p align="center"><n>Favourite skin: Odyssey Kayn</n></p>
 
 <p align="center">My games and profile overview btw</p>
-<p align="center"> 
- <img width="340" src="https://github.com/user-attachments/assets/626bc892-7e8e-45b5-8146-bf7145f87738" alt="5433977500779354320"> 
- <img width="405" src="https://github.com/user-attachments/assets/38c7f02d-ab06-4051-aee8-5582ab7552ea" alt="103428057204191324">
-</p>
+<p align="center">
+  <img width="430" height="300" src="https://github.com/user-attachments/assets/9683500d-9139-44a8-810e-9b647f1502c8" />
+ <img width="340" src="https://github.com/user-attachments/assets/626bc892-7e8e-45b5-8146-bf7145f87738" >
+  
+
 
 <h1>My core</h1>
 <p align="center">
