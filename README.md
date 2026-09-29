@@ -3,7 +3,7 @@
 <img width="200px" src="https://64.media.tumblr.com/17566920d124c7efb7b726aaa4bbe862/2990b3e1e56e952d-86/s500x750/b06bb335ce72a338db66098252c2dd36d2db5f0a.pnj" style="transform: scaleX(-1); alt="qr"/>
 
   <p align="center"> Names Rin</p>
-  <p align="center"> Any pronounce</p>
+  <p align="center"> Any pronouns (I'm non-binary)</p>
   <p align="center"> ESTP 8w7 (sx8sp7so3) SLUEN V²F³E³L⁴ | 24 y.o.</p>
 
 <p align="center">
