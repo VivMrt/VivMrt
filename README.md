@@ -8,7 +8,7 @@
 
 <p align="center">
 <a href="https://en.pronouns.page/@Rin_Ermine">
-<img src="https://img.shields.io/badge/Pronounce_Page-blue?style=for-the-badge" alt="PronouncePage Badge"/> </a>
+<img src="https://img.shields.io/badge/Pronouns_Page-blue?style=for-the-badge" alt="PronouncePage Badge"/> </a>
   <a href="https://rnrmnecard.carrd.co/">
     <img src="https://img.shields.io/badge/Card_Profile-red?style=for-the-badge" alt="Card Badge"/> </a>
 </p>
